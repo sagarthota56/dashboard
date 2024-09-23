@@ -1,3 +1,5 @@
+![Screenshot 2024-09-23 191437 (1)](https://github.com/user-attachments/assets/3766eb18-8604-41eb-9fd7-ffbfedb33154)
+
 ### Key Insights:
 
 1. **Total Revenue**:
